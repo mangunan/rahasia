@@ -1,0 +1,2 @@
+# rahasia
+Jangan di copy
